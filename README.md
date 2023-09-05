@@ -1,4 +1,4 @@
-![GitHub](https://github.com/Juanch04/Juanch04/assets/22102252/547d4534-81c4-49fb-a009-0f175bed00f9)
+![Linkedin 4](https://github.com/Juanch04/Juanch04/assets/22102252/96e2769e-dec1-409c-ae22-38f9e0c65f0e)
 
 <h1 align="center">Hi 👋, I'm Juancho</h1>
 
